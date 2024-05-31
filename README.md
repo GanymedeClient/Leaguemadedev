@@ -8,4 +8,10 @@ Made By Inject/1nject
 <p align="center">
 
 ![Di240312_172823](https://github.com/YsnKey/Leaguemadedev/assets/79665934/32caed74-f95e-4427-8aa1-d7b8a4badb77)
+
+
+
+
+creds to blackout, bananaplus, venomhack, trouserstreak, and possibly more
+holy shit how fucking skidded is this shit
 </p>
